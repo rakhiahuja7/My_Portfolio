@@ -1,1 +1,2 @@
 # My_Portfolio
+A responsible and motivated aspiring individual with strong analytical thinking, time management skills, and a positive attitude. Eager to contribute to your team with dedication and enthusiasm, while leveraging data-driven insights to solve real-world problems. Seeking an opportunity to gain hands-on experience and grow in a professional environment where continuous learning and innovation are valued.
